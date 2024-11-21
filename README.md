@@ -39,7 +39,8 @@
 | 5   | **1WIN CASINO**                          | [👉 **ПЕРЕЙТИ СЮДА** 👈](https://brandplay.link/smXVpBbG)                          | Высокие лимиты, продуманный интерфейс 🎯      | ⭐⭐⭐⭐      |
 | 6   | **DRIP CASINO**                          | [👉 **ПЕРЕЙТИ СЮДА** 👈](https://drp-ircp01.com/c07e6a3db)                          | Отличные джекпоты, честная игра 💎            | ⭐⭐⭐⭐      |
 
-![Sweet Bonanza](https://sweetbananza.com/ru/images/sweet-bonanza.jpg)
+![Слоты на деньги](https://spadok.org.ua/images/bolokhiv/bezdepozytni-poslugy-lavyna.jpg)
+
 
 ## Особенности игры Sweet Bonanza 🎮
 
